@@ -12,4 +12,4 @@ Joining our community and support [Discord](https://discord.gg/wGbZ3wzJxH)!
 
 Here are quick links to our games:
 
-[![Quackventure Cover Art](https://img.itch.zone/aW1nLzE1OTYxODQxLnBuZw==/180x143%23c/FUv0oe.png)](https://hotcocoastudios.itch.io/quackventure "Quackventure")
+[![Quackventure Cover Art](https://img.itch.zone/aW1nLzE1OTYxODQxLnBuZw==/315x250%23c/MgKKvL.png)](https://hotcocoastudios.itch.io/quackventure "Quackventure")
